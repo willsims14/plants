@@ -1,1 +1,1 @@
-# plants
+# Claire's Plant Co.
